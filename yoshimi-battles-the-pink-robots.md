@@ -1,5 +1,5 @@
 1.	"Fight Test" (The Flaming Lips, Dave Fridmann, Cat Stevens)	4:14
-  - reflecting on a conflict, reminder of importance of surrender 
+  - reflecting on a conflict, reminders of uncertainty and surrender 
 2.	"One More Robot/Sympathy 3000-21"  	4:59
   - transition from surrender to love 
 3.	"Yoshimi Battles the Pink Robots Pt. 1"  	4:45
